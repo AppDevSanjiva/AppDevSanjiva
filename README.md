@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on beginner-friendly Android and Flutter projects. I’m eager to work with other developers and contribute to open-source mobile app projects.
 
-📫 How to reach me: Feel free to reach out via [email](professionalcoder369@gmail.com) or connect with me on [LinkedIn] {https://www.linkedin.com/in/sanjiva-s-b05672246/}
+📫 How to reach me: Feel free to reach out via [email](professionalcoder369@gmail.com) or connect with me on [LinkedIn](https://www.linkedin.com/in/sanjiva-s-b05672246/)
 
 😄 Pronouns: He/Him
 
